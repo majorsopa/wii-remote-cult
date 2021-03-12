@@ -1,5 +1,6 @@
 # wii-remote-cult
 
 
-wiiiIIIIIIIIIIIIIIIIII
+wiiiIIIIIIIIIII
+IIIIIII
 ermoet
